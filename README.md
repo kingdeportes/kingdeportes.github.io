@@ -1,2 +1,0 @@
-# kingdeportes.github.io
-KINGDEPORTES
